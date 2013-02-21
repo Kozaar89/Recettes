@@ -4,6 +4,7 @@
 
 * Ingrédient 1
 * Ingrédient 2
+* Ingrédient 3
 
 ## Détails
 
