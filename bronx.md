@@ -2,7 +2,6 @@
 
 ## Ingrédients
 
-
 * 4.5 once de gin	 
 * 1.5 once de vermouth rouge (martini, cinzano)	 
 * 1.5 once de vermouth dry (martini, noilly prat)	 
