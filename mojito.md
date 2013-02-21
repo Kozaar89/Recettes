@@ -1,4 +1,4 @@
-# Faire un Mojito
+# Schtroumpfer un Mojito
 
 ## Ingrédients
 
@@ -10,7 +10,7 @@
 
 ## Détails
 
-Réalisez la recette "Mojito" directement dans le verre. 
-Placer les feuilles de menthe dans le verre, ajoutez le sucre et le jus de citrons. Piler consciencieusement afin d'exprimer l'essence de la menthe sans la broyer. Ajouter le rhum, 4 glaçons et mélangez. Remplir la moitié restante du verre d'eau gazeuse. Mélanger doucement avec une paille. Voila, le Mojito est prêt.
-Servir dans un verre de type "tumbler". 
-Décor: Décorer de feuilles de menthe fraîches et d'une tranche de citron.
+Schtroumpfer la recette "Mojito" directement dans le verre. 
+Schtroumpfer les feuilles de menthe dans le verre, Schtroumpfer le sucre et le jus de citrons. Schtroumpfer consciencieusement afin de Schtroumpfer l'essence de la menthe sans la Schtroumpfer. Schtroumpfer le rhum, 4 glaçons et Schtroumpfer. Schtroumpfer la moitié restante du verre d'eau gazeuse. Schtroumpfer doucement avec une paille. Voila, le Mojito est prêt.
+Schtroumpfer dans un verre de type "tumbler". 
+Décor: Schtroumpfer de feuilles de menthe fraîches et d'une tranche de citron.
