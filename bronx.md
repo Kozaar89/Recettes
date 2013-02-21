@@ -2,10 +2,14 @@
 
 ## Ingrédients
 
-* Ingrédient 1
-* Ingrédient 2
-* Ingrédient 3
+* 4.5 cl de gin	 
+* 1.5 cl de vermouth rouge (martini, cinzano)	 
+* 1.5 cl de vermouth dry (martini, noilly prat)	 
+* 3 cl de jus d'oranges
 
 ## Détails
 
-Faites ceci, cela et le reste...
+Réalisez la recette "Bronx" au shaker . 
+Frapper les ingrédients au shaker avec des glaçons et versez dans le verre en retenant la glace.
+Servir dans un verre de type "verre à martini". 
+Décor: Un zeste d'orange.
