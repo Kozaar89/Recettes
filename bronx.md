@@ -1,4 +1,4 @@
-# Schtroumpfer un Bronx
+# Schtroumpfer un Bronx délicieux
 
 ## Ingrédients
 
