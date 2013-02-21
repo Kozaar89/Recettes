@@ -1,4 +1,4 @@
-# Schtroupfer un Bronx
+# Schtroupfer un Bronx qui sera schtroumpfement bon!
 
 ## Ingrédients
 
